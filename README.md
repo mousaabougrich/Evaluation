@@ -1,0 +1,1 @@
+![alt text](<WhatsApp Image 2025-10-27 à 19.35.31_11fc090f.jpg>)
